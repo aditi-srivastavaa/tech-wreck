@@ -1,1 +1,1 @@
-# tech-wrec
+# tech-wreck
